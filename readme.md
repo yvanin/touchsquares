@@ -1,0 +1,1 @@
+![Screenshot](https://github.com/yvanin/touchsquares/blob/master/0x0ss2.jpg)
